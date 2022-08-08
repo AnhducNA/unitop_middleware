@@ -1,0 +1,1 @@
+<h2>Khu vực không dành cho trẻ em dưới 16 tuổi</h2>
